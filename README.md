@@ -18,7 +18,7 @@ Me especializo en abordar problemas complejos de forma sistemática y entregar r
 |-----------|-------------------|
 | Español   | Nativo            |
 | Inglés    | Avanzado          |
-| Portugués | Avanzado          |
+| Portugués | Intermedio - Avanzado          |
 | Alemán    | Básico - Intermedio |
 
 Mi dominio de múltiples idiomas me permite colaborar eficazmente en equipos internacionales y acceder a recursos académicos y profesionales en diferentes lenguas.
